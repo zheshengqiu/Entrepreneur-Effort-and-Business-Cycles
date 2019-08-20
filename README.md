@@ -1,1 +1,1 @@
-# The-Entrepreneur-Channel-of-Monetary-Policy-Transmission
+# The Entrepreneur Channel of Monetary Policy
