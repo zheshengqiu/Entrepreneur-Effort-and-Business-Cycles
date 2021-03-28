@@ -1,1 +1,1 @@
-# Entreprenuer Effort and Business Cycles
+# Entreprenuers and Business Cycles
